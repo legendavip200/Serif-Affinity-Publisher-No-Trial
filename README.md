@@ -1,0 +1,1 @@
+# Serif-Affinity-Publisher-No-Trial
